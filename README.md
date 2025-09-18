@@ -1,0 +1,2 @@
+# Bykboz-ticaret
+Güveniniz güvenimiz
